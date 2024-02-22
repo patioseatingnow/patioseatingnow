@@ -5,4 +5,4 @@ Here at Patio Seating Now, we're passionate about helping you find the perfect f
 
 Who We Are:
 
-We're a team of patio enthusiasts with a combined experience of [Number] years in the outdoor furniture industry. We understand the challenges of finding comfortable, stylish, and durable seating that fits your budget and space. That's why we've curated a comprehensive selection of furniture from trusted brands, offering a wide variety of styles, materials, and price points.
+We're a team of patio enthusiasts with a combined experience of 10 years in the outdoor furniture industry. We understand the challenges of finding comfortable, stylish, and durable seating that fits your budget and space. That's why we've curated a comprehensive selection of furniture from trusted brands, offering a wide variety of styles, materials, and price points.
